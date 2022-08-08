@@ -10,5 +10,8 @@ I did not.
 # Why did you "steal" my token?
 I did not. I helped you by making it invalid so people that do the same thing as me, but with a evil purpose don't abuse your token
 
+# How did you get so many tokens?
+I keep that private as to not guide malitious people into doing the same
+
 # Got more questions?
 Reach me at lily[@]blahaj.shop or unknown.#0001. 
