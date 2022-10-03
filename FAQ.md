@@ -14,4 +14,4 @@ I did not. I helped you by making it invalid so people that do the same thing as
 I keep that private as to not guide malicious people into doing the same
 
 # Got more questions?
-Reach me at lily[@]blahaj.shop or unknown.#0001. 
+Reach me at lily[@]blahaj.shop or unknown.#0001 
